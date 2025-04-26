@@ -4,11 +4,11 @@
 
 Mi𝚗𝚎𝚌raft: F𝚒𝚕m | Cały film za darmo | Polsku Lektor | CDA UHD/720p
 
-### [➤ ►🌍📺📱👉 𝙼𝚒ne𝚌𝚛𝚊ft: 𝙵ilm (2025) Cały 𝙵ilm](https://aaamiiin.com/pl/movie/950387/a-minecraft-movie-stargg)
+### [➤ ►🌍📺📱👉 𝙼𝚒ne𝚌𝚛𝚊ft: 𝙵ilm (2025) Cały 𝙵ilm](https://streamzy.fun/pl/movie/950387/a-minecraft-movie-gitover)
 
-### [➤ ►🌍📺📱👉 𝙼𝚒ne𝚌𝚛𝚊ft: 𝙵ilm (2025) Cały 𝙵ilm](https://aaamiiin.com/pl/movie/950387/a-minecraft-movie-stargg)
+### [➤ ►🌍📺📱👉 𝙼𝚒ne𝚌𝚛𝚊ft: 𝙵ilm (2025) Cały 𝙵ilm](https://streamzy.fun/pl/movie/950387/a-minecraft-movie-gitover)
 
-### [➤ ►🌍📺📱👉 Oglądaj 𝙼𝚒ne𝚌𝚛𝚊ft: 𝙵ilm (2025) Cały 𝙵ilm Za Darmo](https://aaamiiin.com/pl/movie/950387/a-minecraft-movie-stargg)
+### [➤ ►🌍📺📱👉 Oglądaj 𝙼𝚒ne𝚌𝚛𝚊ft: 𝙵ilm (2025) Cały 𝙵ilm Za Darmo](https://streamzy.fun/pl/movie/950387/a-minecraft-movie-gitover)
 
 Czy lubisz filmy Marvela? Jeśli tak, pokochasz Jasona Momoa i Patricka Wilsona: #Mi𝚗𝚎𝚌raft: F𝚒𝚕m: Film. w swoim gatunku,
 
